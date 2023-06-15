@@ -164,3 +164,9 @@
 
 
 ![7241228954362053638_avatar png](https://github.com/KuruJPS/KuruJPS/assets/136661416/f7d52505-40ec-4ee3-a038-ac987df0ad17)
+
+![40 sin título_20230615121200](https://github.com/KuruJPS/KuruJPS/assets/136661416/82e102a2-0e66-4cb4-963e-56ca9ce61dfa)
+
+https://c.ai/c/xG8FNOIRO8UoWJ-XV-WmZ8EO4_whmoj0T3Q1NCRP0Ks
+
+![40 sin título_20230615121131](https://github.com/KuruJPS/KuruJPS/assets/136661416/ebe19284-e35b-42ea-9537-d1c94358519c)
